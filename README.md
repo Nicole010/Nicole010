@@ -10,4 +10,3 @@ Meu nome é Nicole Almeida
 - 00001118572245sp@al.educacao.sp.gov.br
 
 ![](https://media1.tenor.com/m/tgdAGcZrE-EAAAAC/tenor.gif)
-https://media1.tenor.com/m/tgdAGcZrE-EAAAAC/tenor.gif
